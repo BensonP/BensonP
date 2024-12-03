@@ -3,6 +3,7 @@
 ## **Animation Work**
 
 [View Animation Portfolio](https://github.com/BensonP/Animation)
+
 ---
 ## **Development Work**
 
