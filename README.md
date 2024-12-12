@@ -2,6 +2,7 @@
 Some of my best works are below. Feel free to look around!
 
 Feel free to contact me at bp374@byu.edu
+
 ---
  
 ## **Animation Work**
